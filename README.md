@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rakshitagg06@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1XFvlt3M4eXKgcAO9TCN2xrMLoWSy2AvE/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Wok_bIFF3sGBf2VsyHuPi0hQHNZyK2ES/view?usp=drive_link)
 
 - ⚡ Fun fact **Find me anytime near basketball court**
 
